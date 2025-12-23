@@ -1,12 +1,6 @@
 sherrybrabyn300@icloud.com
 RaynardSpringell6142@icloud.com
-DexterVowells911@icloud.com
 EmeraldCrosby1992@icloud.com
-DemiRangel36@icloud.com
-KinleyBeil8974@icloud.com
-JazmineHart24@icloud.com
-FrankiePortillo6978@icloud.com
-XiomaraPacheco10@icloud.com
 KrewKerr2000@icloud.com
 felixsolis1998@icloud.com
 RosiePoole58@icloud.com
@@ -25,3 +19,4 @@ SamaraShelton623@icloud.com
 QuinnMcKee552@icloud.com
 ReeseHumphrey0208@icloud.com
 ErnestoBrandt636@icloud.com
+
